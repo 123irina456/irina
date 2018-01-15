@@ -1,3 +1,3 @@
 # irina
 ## about me 
-![alt-текст](https://yandex.ru/collections/card/592442ab8cb1f700b52ee3c3/)
+![alt-текст](https://avatars.mds.yandex.net/get-pdb/51720/b799c026-a860-494c-841c-b17d46daf6f8/s1200)
